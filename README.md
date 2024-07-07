@@ -1,4 +1,4 @@
-# About Sneed Group
+# About Sneed Group <img src="sneed.png" width="25%" align="right">
 
 Hello! We are a [team of skilled coders](https://github.com/Sneed-Group) that solve pratical problems.
 
