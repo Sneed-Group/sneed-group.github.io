@@ -7,3 +7,5 @@ You can donate to us or send money as per the SPL-R5 [here.](https://coindrop.to
 Have a great day!
 
 --Sneed Group Team
+
+PS: Thank you Sparksammy for all you do. You are the best! You are literally the Sneed Group member of the lifetime.
